@@ -10,6 +10,5 @@
 
 
 
-![image](https://github.com/rutvik-walde/XcelAccountant/assets/69450089/45935a93-fdc3-4973-9460-53b09bd11347)
 
 
